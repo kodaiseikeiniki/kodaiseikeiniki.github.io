@@ -1,0 +1,1 @@
+# kodaiseikeiniki.github.io
